@@ -1,0 +1,7 @@
+- [http://teijilaantila.github.io/](http://teijilaantila.github.io/)
+- [https://medium.com/@TeijilaAntila](https://medium.com/@TeijilaAntila)
+- [https://www.quora.com/profile/Teijila-Antila](https://www.quora.com/profile/Teijila-Antila)
+- [https://www.reddit.com/user/Ok-Pop-2856/](https://www.reddit.com/user/Ok-Pop-2856/)
+- [https://www.youtube.com/channel/UCjTh0CBr2kImJkSg_zF3piQ](https://www.youtube.com/channel/UCjTh0CBr2kImJkSg_zF3piQ)
+- [https://x.com/TeijilaAntila](https://x.com/TeijilaAntila)
+- [https://www.pinterest.com/TeijilaAntila/](https://www.pinterest.com/TeijilaAntila/)
